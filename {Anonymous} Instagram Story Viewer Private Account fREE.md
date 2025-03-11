@@ -78,7 +78,7 @@ Whether you're curious about someone’s content or need to check in on public f
 
 ---
 
-**Keywords Used:**
+**Keywords NEW:**
 - Anonymous Instagram Story Viewer
 - View Instagram Stories Anonymously
 - Free Anonymous Instagram Story Viewer
