@@ -71,7 +71,7 @@ However, while these apps are tempting, it’s essential to use them responsibly
 
 ---
 
-**Keywords:**
+**Keywords NEW:**
 - Free Instagram Private Viewer App
 - View Private Instagram Stories Anonymously
 - Instagram Profile Viewer Free
